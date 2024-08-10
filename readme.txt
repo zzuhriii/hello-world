@@ -1,1 +1,2 @@
 Hello
+Makan Ayam goreng
